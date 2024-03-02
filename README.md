@@ -1,0 +1,1 @@
+# Onamni-eng-bahtli-inson-qilaman
